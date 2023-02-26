@@ -14,4 +14,15 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ʜᴏᴍᴇ ᴘᴀɢᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ 
+ᴀɴᴏᴛʜᴇʀ ᴘᴀɢᴇꜱ👇
+.
+🔰ɪɴꜱᴛᴀɢʀᴀᴍ:
+https://www.instagram.com/alisinamofficial 
+.
+🔶️ꜱᴏᴜɴᴅᴄʟᴏᴜᴅ ɪᴅ:
+https://soundcloud.app.goo.gl/8vBvUxFYPxRTZofVA
+.
+🔺️ʏᴏᴜᴛᴜʙᴇ ᴄʜᴀɴɴᴇʟ:
+https://youtube.com/channel/UCw-1yrLtC9rYQzh4sJqhYbQ
 -->
